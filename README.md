@@ -1,0 +1,13 @@
+hii guys, u can call me dani/kat. i go by she/her btw !
+
+fandoms: dw, crk, genshin impact, fnf, animatic battle, dreamgame, ila, 
+
+DNI:
+
+1- 18+ y.o
+
+2- creeps
+
+3- NO sending death/🍇 threats (pls dont)
+
+bye

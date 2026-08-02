@@ -2,7 +2,7 @@
  
    ﹕ katsette / kat !
 
-   ᰋ  she X her .ᐟ.ᐟ  minor ^_^ 
+   ᰋ  she X her ' 14 y.o ^_^
    
 
 - fandoms: dandy's world - crk - genshin impact - animatic battle - dreamgame - forsaken - fnf - i love amy - the freak circus !!

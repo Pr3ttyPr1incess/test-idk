@@ -24,4 +24,6 @@ X DNI:
 6- ice/trump supporters
 
 
-( take care & have a nice day/night ♡ )
+. . .
+
+   ( take care & have a nice day/night ♡ )
